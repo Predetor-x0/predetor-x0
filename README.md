@@ -2,7 +2,7 @@
 
 ---
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=FF00FF&lines=𝙷𝙴𝙻𝙻𝙾+𝙸'𝙼+ᴘʀᴇᴅᴇᴛᴏʀ.;𝚃𝙷𝙸𝚂+𝙸𝚂+𝙼𝚈+𝙶𝙸𝚃𝙷𝚄𝙱+𝙿𝚁𝙾𝙵𝙸𝙻𝙴;𝚆𝙰𝙸𝚃+𝙵𝙾𝚁+𝙼𝙾𝚁𝙴+𝙷𝙰𝙲𝙺𝙸𝙽𝙶+𝚃𝙾𝙾𝙻;𝚅𝙸𝚂𝙸𝚃+𝙼𝚈+𝚆𝙴𝙱𝚂𝙸𝚃𝙴+𝙵𝙾𝚁+𝙼𝙾𝚁𝙴+𝙷𝙰𝙲𝙺𝙸𝙽𝙶+𝚃𝙾𝙾𝙻;ωωω.αѕѕαѕѕιηѕ-ρяσgяαммєяѕ.¢σм;𝗧𝗛𝗔𝗡𝗞𝗦+𝗙𝗢𝗥+𝗩𝗜𝗦𝗜𝗧𝗜𝗡𝗚+𝗠𝗬+𝗣𝗥𝗢𝗙𝗜𝗟𝗘💜)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=FF00FF&lines=нєℓℓσω+𝙸'𝙼+ρяє∂єтσя-x0.;𝚃𝙷𝙸𝚂+𝙸𝚂+𝙼𝚈+𝙶𝙸𝚃𝙷𝚄𝙱+𝙿𝚁𝙾𝙵𝙸𝙻𝙴;𝚆𝙰𝙸𝚃+𝙵𝙾𝚁+𝙼𝙾𝚁𝙴+𝚃𝙾𝙾𝙻;𝚅𝙸𝚂𝙸𝚃+𝙼𝚈+𝚆𝙴𝙱𝚂𝙸𝚃𝙴+𝙵𝙾𝚁+𝙼𝙾𝚁𝙴+𝙷𝙰𝙲𝙺𝙸𝙽𝙶+𝚃𝙾𝙾𝙻;ωωω.ρяє∂єтσя-ƒαмιℓу.¢σм;𝗧𝗛𝗔𝗡𝗞𝗦+𝗙𝗢𝗥+𝗩𝗜𝗦𝗜𝗧𝗜𝗡𝗚+𝗠𝗬+𝗣𝗥𝗢𝗙𝗜𝗟𝗘💜)](https://git.io/typing-svg)
 # ᴘʀᴏꜰɪʟᴇ ᴠɪᴡᴇʀꜱ
 <img src="https://profile-counter.glitch.me/Predetor-x0/count.svg" alt="" />
 <a href="https://github.com/Predetor-x0?tab=stars">
